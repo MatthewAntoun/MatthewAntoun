@@ -1,4 +1,9 @@
-### 🔭 I'm currently the CEO of Dome
-- I've founded multiple companies and am always learning new things
-- I am passionate about helping foster new founders
-- Email: matthew.antoun@trydome.io
+🔭 **Current Role:** Founder & CEO at Dome
+
+🚀 **Entrepreneurial Journey:** Founder of multiple successful ventures, constantly exploring and learning in the dynamic world of business.
+
+💡 **Passion:** Committed to fostering the growth of new founders and supporting the startup ecosystem.
+
+🍳 **Hobby:** Passionate about cooking and creating delicious dishes in my free time.
+
+🌐 **Connect with me:** email: matthew.antoun@trydome.io 
